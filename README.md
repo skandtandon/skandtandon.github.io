@@ -1,3 +1,0 @@
-## Skand Tandon
-Give Credits 
-=========================
